@@ -1,5 +1,5 @@
 - 👋 @idle-Calliope here!
-- 👀 Introverted, Self-Conscious, Love me some dark humor
+- 👀 Intrigued by easy programs LOL 
 - 🌱 I’m continuously learning to code with C#, C++, Java, Python, Php, etc.
 - 💞️ Using this platform to learn/improve where I can
 - 📫 Email: ellaine.fontB@gmail.com / ellaineellie19@gmail.com
